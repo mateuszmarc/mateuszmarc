@@ -2,7 +2,7 @@
 
 I am aspiring software developer.
 I wanted to change something in my life, so I started coding.
-I have never thought this can be so frustrating, satisfying and fulfilling at the same time!
+I have never thought this can be sometimes so frustrating, but also satisfying and fulfilling at the same time!
 I'm just at the beginning of this journey!
 
 - 📫 How to reach me: mmarcykiewicz@gmail.com
