@@ -1,6 +1,5 @@
 ### Hi there 👋, I am Mateusz! 😁
 
-I am aspiring software developer.
 I have never thought coding can be sometimes so frustrating, but also satisfying and fulfilling at the same time!
 I'm just at the beginning of this journey!
 
